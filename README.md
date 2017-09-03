@@ -8,3 +8,5 @@ https://vk.com/video303852301_456239217
 Продолжение:
 
 https://vk.com/video303852301_456239218
+
+Группа вконтакте: https://vk.com/volgograd_web
